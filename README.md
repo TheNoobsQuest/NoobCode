@@ -1,0 +1,2 @@
+# NoobCode
+idk lol
